@@ -1,1 +1,0 @@
-# Indicator-trading-and-drawbacks
